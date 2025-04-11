@@ -1,1 +1,1 @@
-![Screenshot 2024-03-04 004604](https://github.com/AdityaPatil100/Power-Bi-projects/assets/86911300/5a226189-8d36-48dc-8398-576d15e62ce8)
+<img width="1034" alt="Screenshot 2025-04-11 at 1 01 49 AM" src="https://github.com/user-attachments/assets/a00027d3-ebc8-4846-acbd-efe03c7375d6" />
